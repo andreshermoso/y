@@ -1,2 +1,0 @@
-# yoke
-https://yokeintegration.com/
